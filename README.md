@@ -1,4 +1,4 @@
-### Hi there, I'm Kirill! 👋
+### Hi there, I'm Katarina! 👋
 
 ```
                     ☀️
